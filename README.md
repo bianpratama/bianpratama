@@ -1,5 +1,5 @@
 # A loud mind stuck in an introvert soul.
----
+
 A young man who got passion in the world of arts and culture, sharing ideas to others, and playing basketball in his spare time. Currently seeking chance to deal with his dreams and ambitions.
 
 He is from Indonesia, a country where art/design work is less appreciated. A self-taught artist wannabe who learnt art and design since the day he was brought into junior high school. Got a hiatus of doing art-related things, when he went to semi-military senior high school (Taruna Nusantara Senior High School).
