@@ -1,4 +1,4 @@
-# A loud mind stuck in an introvert soul.
+# A loud mind stuck in an introverted soul.
 
 A young man who got passion in the world of arts and culture, sharing ideas to others, and playing basketball in his spare time. Currently seeking chance to deal with his dreams and ambitions.
 
